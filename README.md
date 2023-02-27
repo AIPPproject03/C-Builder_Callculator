@@ -6,3 +6,4 @@ Hope you learn something new my dearest friend hehe... GBU🤗😇
 
 
 ![CallculatorAIPP](https://user-images.githubusercontent.com/115967151/221565056-b3198651-7117-4d0b-a048-38d7c87a3e88.PNG)
+This is the display of my application... Simple isn't?? lol
